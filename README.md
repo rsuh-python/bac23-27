@@ -4,6 +4,8 @@
 
 Анна Верещагина, Александра Ивойлова
 
+[Таблица с баллами](https://docs.google.com/spreadsheets/d/1BNdyUbD-G0sF6cLC0YKfYADqIU6jPbVDO6KMFV2tdVo/edit?usp=sharing)
+
 ## Содержание
 
 **4 семестр**
